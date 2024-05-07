@@ -1,0 +1,1 @@
+# Estriplasa-QR
